@@ -4,4 +4,4 @@ Here's a list of things I currently keep myself busy with:
 
 - 👩🏻‍💻 Working as a software engineer 
 - 💡 I like to explore new technologies and develop software solutions and quick hacks
-- ✌️  In my free time, I freelance Graphic design, website design, and video editing projects
+- ✌️  In my free time, I freelance graphic design, website design, and video editing projects
